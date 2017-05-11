@@ -1,2 +1,2 @@
 # studious-succotash
-This is literally for no reason soooo
+you know, i made this, just because.
